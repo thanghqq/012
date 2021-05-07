@@ -1,5 +1,2 @@
-![Artboard 9](https://user-images.githubusercontent.com/81954248/116028320-16e48880-a681-11eb-91c2-1ea73dc44ad9.png)
-![Artboard 9](https://user-images.githubusercontent.com/81954248/116028242-eb619e00-a680-11eb-808c-ef721c3223bd.png)
-![Artboard 8](https://user-images.githubusercontent.com/81954248/116026504-18ac4d00-a67d-11eb-8590-e786e7e9bfc9.png)
-![Artboard 3](https://user-images.githubusercontent.com/81954248/116026469-08946d80-a67d-11eb-8ea0-52486bbadccd.png)
-
+![Artboard 1](https://user-images.githubusercontent.com/81954248/117391457-2cc43a00-af1a-11eb-8aa8-a9b4208f26f9.png)
+![Artboard 2](https://user-images.githubusercontent.com/81954248/117391462-2df56700-af1a-11eb-8c20-6b2fb0bc25b5.png)
