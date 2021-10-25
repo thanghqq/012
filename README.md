@@ -11,6 +11,7 @@
 ![d2](https://user-images.githubusercontent.com/81954248/130730409-2b733c00-dc2a-4b93-a04f-6c2c3bd1eaa5.png)
 ![IX_tradingcontest_gif2](https://user-images.githubusercontent.com/81954248/134609346-671fb7bf-9b76-4265-8447-73a4cc7178f7.gif)
 ![IXGT01](https://user-images.githubusercontent.com/81954248/137670670-e7365976-ff21-46fc-bd40-8d6591744102.png)
+![rp1](https://user-images.githubusercontent.com/81954248/138633313-28829032-487d-42d3-b4a1-874d60d5d852.png)
 
 ![IX_tradingcontest_gif1](https://user-images.githubusercontent.com/81954248/137670801-60867358-4d9c-499b-8f0c-c1b120aeff5a.gif)
 
